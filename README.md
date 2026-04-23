@@ -1,2 +1,0 @@
-# PROJEKT
-Projekt na PRG
